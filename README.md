@@ -1,0 +1,1 @@
+ud auto color click
